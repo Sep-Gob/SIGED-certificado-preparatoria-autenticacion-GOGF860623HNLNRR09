@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOGF860623HNLNRR09
+GOGF860623HNLNRR09
